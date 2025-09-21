@@ -4,7 +4,7 @@ Hi, this is **X Finance Club**.
 
 Currently, all work is done by **Sixuan Xu**.
 
-Members:
+Curent Members:
 - Jack
 - Jackson
 - Benson
