@@ -1,7 +1,7 @@
 # X-Finance-Club
-Some uploads for Projects
-Hi, this is **X Finance Club**.
 
+Hi, this is **X Finance Club**.
+Here are some uploads for Projects
 Currently, all work is done by **Sixuan Xu**.
 
 Members:
