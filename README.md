@@ -6,14 +6,7 @@ Here are some uploads for Projects.
 
 Currently, all work is done by **Sixuan Xu**.
 
-Members:
-- Jack
-- Jackson
-- Benson
-- Bob
-- David
-- Siqi
-- Leon
+Updated 27th Sep
   
 ---
 
