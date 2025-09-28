@@ -12,7 +12,7 @@ Currently, all work is done by **Sixuan Xu**.
 Sep 28th:
 
 Update on
-Weekly Geopolitical Briefing September 28, 2025
+Weekly Geopolitical Briefing 'AL-AQSA FLOOD' CONFLICT Israel & Palestine
 
 ---
 
