@@ -6,8 +6,12 @@ Here are some uploads for Projects.
 
 Currently, all work is done by **Sixuan Xu**.
 
-Updated 27th Sep
-  
+Updated 28th Sep
+
+
+29th Sep
+Update on
+Weekly Geopolitical Briefing September 28, 2025
 ---
 
 **Weekly news** are updated every Sunday night.
